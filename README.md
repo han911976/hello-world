@@ -3,4 +3,4 @@
 Hi guys
 
 I am a student who studying electronics and computing knowledges.
-Learn new things on my own ^^
+Learning new things by my own ^^
